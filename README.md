@@ -1,4 +1,6 @@
-## Hi there 👋
+## I HAVE NO IDEA WHAT I AM DOING WITH ANY OF MY CODE AND I AM LIKELY TO MAKE 50 WEIRD COMMITS TRYING TO FIX ONE SINGULAR INSIGNIFICANT ISSUE. I SUPPORT THE RIGHTS OF TRANSGENDER WOMEN WHO SUCK DOGSHIT AT CODING ACTUALLY NO MATTER HOW LONG OUR SOCKS ARE
+
+i hope you understand. u_u
 
 <!--
 **mapl3bloom/mapl3bloom** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
